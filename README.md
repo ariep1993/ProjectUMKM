@@ -1,3 +1,9 @@
+## PENJELASAN ADA DI YOTUBE 
+
+https://youtu.be/QdVRrknLpYY
+
+
+
 ## HASIL INPUT 
 
 
